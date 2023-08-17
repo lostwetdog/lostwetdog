@@ -2,7 +2,7 @@ Hello! I'm Sidney.
 
 I am usually off tab/talking with friends. Feel free to int!
 
-Big slasher freak as of late.
+Big slasher/COD freak as of late.
 
 I 🫀 ... Pat & Kurt.
 
