@@ -4,7 +4,7 @@ I am usually off tab/talking with friends. Feel free to int!
 
 Big slasher/COD/TWD freak as of late.
 
-I 🫀 ... Pat & Kurt.
+I 🫀 ... Pat & Kurt & Koby.
 
 ⠀
 
